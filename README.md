@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ayushwaghale777@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/134IjAJMsnmU6_KyGGfcbC9rnXHQdQ60o/view?usp=drive_link](https://drive.google.com/file/d/134IjAJMsnmU6_KyGGfcbC9rnXHQdQ60o/view?usp=drive_link)
+- 📄 Know about my experiences [Click Here](https://drive.google.com/file/d/1LcO8Hb0fbCYsflwFaFP9HMTqmpt0sSVU/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
